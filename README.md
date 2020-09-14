@@ -1,1 +1,1 @@
-# rsschool-cv
+https://prorockk.github.io/rsschool-cv/cv
